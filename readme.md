@@ -8,13 +8,13 @@ te quiero mucho maki
 ##### like chopsticks
 |grupos|bai|
 |--|--|
-| &team | ot8...🐻‍❄️|
-| wish | jehi... |
+| &team 🐺| ot8...🐻‍❄️|
+| wish | jehi...🐕 |
 
 ***omg un emoji***
 _es como wsp XD_
 *te quiero mucho* 
-##### HEARTBREAK TIME MACHIne
+##### I WISH I HAD A HEARTBREAK TIME MACHIne
 ####pipipi no funca?? ---
 >i wish i had a heartbreak time machineee
 >jinjja crazy :3
