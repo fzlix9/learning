@@ -6,9 +6,10 @@ te quiero mucho maki
 ### mas texto lowkey
 #### pq sigue funcioanddo JHDFJH
 ##### like chopsticks
-|practica|gral  |
+|grupos|bai|
 |--|--|
-|lolaso  | vvsa &team 🦋|
+| &team | ot8...🐻‍❄️|
+| wish | jehi... |
 
 ***omg un emoji***
 _es como wsp XD_
